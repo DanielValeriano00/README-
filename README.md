@@ -20,7 +20,7 @@ Oi eu sou DANIEL VALERIANO, aqui está um pouco do que faço ❤
 
 ##
 
-![asdasdasdasdasdasda GITIGIGITIITTIITT](https://user-images.githubusercontent.com/116782583/208207639-f412320e-c5ab-4c36-a9cb-f4d141fbdd4a.gif)
+![](https://github.com/Your_Repository_Name/Your_GIF_Name.gif)
 
 
 
